@@ -1,6 +1,6 @@
 <p align="center">You're the one I've always wanted</p>
 
-<p align="csnter" >×</p>
+<p align="center" >×</p>
 
   
 <p align="center">Freefalling through time</p>
