@@ -1,5 +1,5 @@
-<p align="center"> facial </p>
-<p align="center">    recognition </p>
-<p align="center">         pandemonium </p>
+<p align="center"> so prepare for war </p>
+<p align="center"> because I'm young arrogant and hate everything you stand for!    </p>
+<p align="center">         </p>
 
 
