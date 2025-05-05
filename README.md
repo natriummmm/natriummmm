@@ -1,5 +1,5 @@
-<p align="left"> facial </p>
-<p align="center"> recognition </p>
-<p align="right"> pandemonium </p>
+<p align="center"> facial </p>
+<p align="center">    recognition </p>
+<p align="center">         pandemonium </p>
 
 
