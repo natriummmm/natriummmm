@@ -1,4 +1,4 @@
-<p align="center"> 𓆉 </p>
+
   
 <p align="center"> they told me about diseases </p>
 <p align="center"> and told me I should cut you to pieces </p>
