@@ -1,6 +1,6 @@
 
   
-<p align="center"> because I'm young, arrogant and hate everything you stand for - Machine Girl  </p>
+<p align="center"> 𝙗𝙚𝙘𝙖𝙪𝙨𝙚 𝙄'𝙢 𝙮𝙤𝙪𝙣𝙜, 𝙖𝙧𝙧𝙤𝙜𝙖𝙣𝙩 𝙖𝙣𝙙 𝙝𝙖𝙩𝙚 𝙚𝙫𝙚𝙧𝙮𝙩𝙝𝙞𝙣𝙜 𝙮𝙤𝙪 𝙨𝙩𝙖𝙣𝙙 𝙛𝙤𝙧 - 𝙈𝙖𝙘𝙝𝙞𝙣𝙚 𝙂𝙞𝙧𝙡  </p>
 
 
 <p align="center"> 𓆉 </p>
